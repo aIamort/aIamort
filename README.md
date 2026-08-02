@@ -1,1 +1,4 @@
- ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀   ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀  ![](https://komarev.com/ghpvc/?username=zotxii&color=799896&label=󠀠󠀠ʚɞ)
+ ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀   ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ 
+ <p align="center">
+  
+ <img src="https://i.postimg.cc/PJFBBpGB/Untitled314-20260802193526.webp">
